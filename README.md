@@ -8,7 +8,7 @@
 
 PNT2022TMID15186
 
-## Team Members : 😃
+## Team Members : 
 
 Devalla Charan Sri Sai:   111519104022
 
