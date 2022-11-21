@@ -16,7 +16,7 @@ Galla Vishnu Sai Saketh:  111519104029
 
 Dasararaju Gnanendra:     111519104020
 
-Chejerla Vinay Karthik:   111519104017
+Chejarla Vinay Karthik:   111519104017
 
 
 ![App Screenshot](https://media.istockphoto.com/id/1146311388/photo/phishing-button-on-computer-keyboard.jpg?s=612x612&w=0&k=20&c=79KwrQV15LvG8MO4MPS8YthnyXmGiYimzax0xn4uCNk=)
